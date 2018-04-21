@@ -1,0 +1,14 @@
+---
+author: chidaotuyentudu
+comments: true
+date: 2016-05-11 22:31:25+00:00
+layout: post
+link: https://chidaotuyentudu.wordpress.com/2016/05/12/load-bai/
+slug: load-bai
+title: Load bai
+wordpress_id: 71
+categories:
+- TeleHealth
+---
+
+[Ban tin.pdf](http://chidaotuyentudu.files.wordpress.com/2016/05/ban-tin.pdf)

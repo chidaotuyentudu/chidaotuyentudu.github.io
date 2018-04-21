@@ -1,0 +1,16 @@
+---
+author: chidaotuyentudu
+comments: true
+date: 2018-01-15 07:26:03+00:00
+layout: post
+link: https://chidaotuyentudu.wordpress.com/2018/01/15/15-january-2018-1426/
+slug: 15-january-2018-1426
+title: Tổng kết lớp tập huấn quy trình triển khai cung cấp dịch vụ PLTMC
+wordpress_id: 817
+categories:
+- TeleHealth
+post_format:
+- Hình ảnh
+---
+
+[![](https://chidaotuyentudu.files.wordpress.com/2018/01/image-0-02-06-3bea3ca7a35399ec4c2112e13671225236e14584e7be47107d0226cf6d981f1b-v.jpg)](http://chidaotuyentudu.files.wordpress.com/2018/01/image-0-02-06-3bea3ca7a35399ec4c2112e13671225236e14584e7be47107d0226cf6d981f1b-v.jpg)
