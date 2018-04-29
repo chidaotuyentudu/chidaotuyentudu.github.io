@@ -13,4 +13,4 @@ categories:
 
 Mời các Chị học viên lớp điều dưỡng download tài liệu tại đây
 
-[http://s.thanhgo.com/tailieulopdieuduong](http://s.thanhgo.com/tailieulopdieuduong)
+[http://s.drbinhthanh.com/tailieulopdieuduong](http://s.drbinhthanh.com/tailieulopdieuduong)

@@ -49,7 +49,7 @@ Thời gian: 13h30 ngày 10/3/2017
 
 Để giúp ban tổ chức trong việc tổ chức buổi tập huấn . Đề nghị quí đơn vị
 đăng ký tham gia bằng cách điền vào  MẪU ĐĂNG KÝ ( link đính kèm
-:[s.thanhgo.com/maudangki](http://s.thanhgo.com/maudangki) để nhận
+:[s.drbinhthanh.com/maudangki](http://s.drbinhthanh.com/maudangki) để nhận
 Password tham gia buổi tập huấn.
 
 
@@ -59,7 +59,7 @@ Các đơn vị không đăng ký trước sẽ không đăng nhập  tham gia 
 được.
 *P/s: Quí đơn vị vui lòng đăng kí và ghi nhớ lại Pass word để tham gia.
 Đồng thời đơn vị nào chưa gửi bảng đánh giá buổi tập huấn vui lòng gửi giúp
-link đính kèm[ ](http://s.thanhgo.com/maudanhgia)[s.thanhgo.com/maudanhgia](http://s.thanhgo.com/maudanhgia)
+link đính kèm[ ](http://s.drbinhthanh.com/maudanhgia)[s.drbinhthanh.com/maudanhgia](http://s.drbinhthanh.com/maudanhgia)
 
 
 

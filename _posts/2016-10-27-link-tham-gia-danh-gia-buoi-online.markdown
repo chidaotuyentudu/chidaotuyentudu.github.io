@@ -18,7 +18,7 @@ Ban giám đốc TTCSSKSS các tỉnh phía Nam
 
 Ban giám đốc bệnh viện Sản Nhi các tỉnh phía Nam.
 
-Nhằm giúp cho Ban tổ chức trong việc tổ chức các buổi online được tốt hơn, Ban tổ chức kính mong quí đơn vị vui lòng hoàn thành phiếu đánh giá của buổi online theo đường link: [s.thanhgo.com/maudanhgia](http://s.thanhgo.com/maudanhgia)
+Nhằm giúp cho Ban tổ chức trong việc tổ chức các buổi online được tốt hơn, Ban tổ chức kính mong quí đơn vị vui lòng hoàn thành phiếu đánh giá của buổi online theo đường link: [s.drbinhthanh.com/maudanhgia](http://s.drbinhthanh.com/maudanhgia)
 
 Trân trọng
 

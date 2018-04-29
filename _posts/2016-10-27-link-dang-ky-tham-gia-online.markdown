@@ -18,7 +18,7 @@ Ban giám đốc TTCSSKSS các tỉnh phía Nam
 
 Ban giám đốc bệnh viện Sản Nhi các tỉnh phía Nam.
 
-Nhằm tổ chức các lớp online được tốt, Ban tổ chức đề nghị quí đơn vị vui lòng đăng ký danh sách theo đường link [s.thanhgo.com/maudangki](http://s.thanhgo.com/maudangki) để nhận Password tham gia.
+Nhằm tổ chức các lớp online được tốt, Ban tổ chức đề nghị quí đơn vị vui lòng đăng ký danh sách theo đường link [s.drbinhthanh.com/maudangki](http://s.drbinhthanh.com/maudangki) để nhận Password tham gia.
 
 Ban tổ chức sẽ đóng đường link trước khi diễn ra lớp học trước 1 ngày
 
